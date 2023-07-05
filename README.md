@@ -1,1 +1,1 @@
-![дiня](https://i.imgur.com/JQS28jA.png)
+![ъьььъгг](https://i.imgur.com/ZC4tRDo.png)
